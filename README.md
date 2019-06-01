@@ -8,4 +8,6 @@ This is steve's coolness. It's the best kind of coolness.
 -   I added bullets
 -   So many bullets
 
-I want to change new things.
+What now?
+What a wonderful Lord that sent you here today for me today.
+Thank you Jesus for Steve Marshall.
