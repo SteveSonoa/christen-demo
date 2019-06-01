@@ -8,6 +8,4 @@ This is steve's coolness. It's the best kind of coolness.
 -   I added bullets
 -   So many bullets
 
-What now?
-
-CONFLICTS!!!
+I want to change new things.
