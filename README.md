@@ -1,3 +1,3 @@
 # Coolness
+This is the best day ever...
 
-This is text.
