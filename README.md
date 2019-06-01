@@ -9,5 +9,5 @@ This is steve's coolness. It's the best kind of coolness.
 -   So many bullets
 
 What now?
-
-CONFLICTS!!!
+What a wonderful Lord that sent you here today for me today. 
+Thank you Jesus for Steve Marshall.
